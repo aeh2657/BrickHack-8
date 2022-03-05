@@ -1,2 +1,1 @@
-# BrickHack-8 hi njjh h j 
-# fhewgfiu hellloooo
+# BrickHack-8 hi 
